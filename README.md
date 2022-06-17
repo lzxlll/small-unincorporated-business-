@@ -1,1 +1,1 @@
-# small-unincorporated-business-
+# Small-unincorporated-business
